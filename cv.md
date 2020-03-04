@@ -2,8 +2,9 @@
 
 ## Contacts
 
-* email: lisa.rapinchuk@gmail.com
+* **email:** lisa.rapinchuk@gmail.com
 * telegram: @samlety
+* instagram: @samolyotik
 
 ## Summary 
 
